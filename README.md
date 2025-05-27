@@ -1,1 +1,1 @@
-# GKSS-gerejakristensulawesiselatan.github.io
+# GKSS-gerejakristensulawesiselatan
